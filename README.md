@@ -1,2 +1,2 @@
 # weeb & scripter 
-watch anime and programs things
+I watch anime and program things
